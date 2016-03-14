@@ -1,59 +1,59 @@
 # Ticket To Ride 
 
-I think I'm gonna be sad
-I think it's today, yeah
-The girl that's driving me mad
-Is going away
-
-She's got a ticket to ride
-She's got a ticket to ride
-She's got a ticket to ride
-But she don't care
-
-She said that living with me
-Is bringing her down, yeah
-For she would never be free
-When I was around
-
-She's got a ticket to ride
-She's got a ticket to ride
-She's got a ticket to ride
-But she don't care
-
-I don't know why she's riding so high
-She ought to think twice
-She ought to do right by me
-Before she gets to saying goodbye
-She ought to think twice
-She ought to do right by me
-
-I think I'm gonna be sad
-I think it's today, yeah
-The girl that's driving me mad
-Is going away, yeah
-
-Oh, she's got a ticket to ride
-She's got a ticket to ride
-She's got a ticket to ride
-But she don't care
-
-I don't know why she's riding so high
-She ought to think twice
-She ought to do right by me
-Before she gets to saying goodbye
-She ought to think twice
-She ought to do right by me
-
-She said that living with me
-Is bringing her down, yeah
-For she would never be free
-When I was around
-
-Ah, she's got a ticket to ride
-She's got a ticket to ride
-She's got a ticket to ride
-But she don't care
-
-My baby don't care, my baby don't care
-My baby don't care, my baby don't care
-My baby don't care, my baby don't care (fade out)
+I think I'm gonna be sad<br />
+I think it's today, yeah<br />
+The girl that's driving me mad<br />
+Is going away<br />
+<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+But she don't care<br />
+<br />
+She said that living with me<br />
+Is bringing her down, yeah<br />
+For she would never be free<br />
+When I was around<br />
+<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+But she don't care<br />
+<br />
+I don't know why she's riding so high<br />
+She ought to think twice<br />
+She ought to do right by me<br />
+Before she gets to saying goodbye<br />
+She ought to think twice<br />
+She ought to do right by me<br />
+<br />
+I think I'm gonna be sad<br />
+I think it's today, yeah<br />
+The girl that's driving me mad<br />
+Is going away, yeah<br />
+<br />
+Oh, she's got a ticket to ride<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+But she don't care<br />
+<br />
+I don't know why she's riding so high<br />
+She ought to think twice<br />
+She ought to do right by me<br />
+Before she gets to saying goodbye<br />
+She ought to think twice<br />
+She ought to do right by me<br />
+<br />
+She said that living with me<br />
+Is bringing her down, yeah<br />
+For she would never be free<br />
+When I was around<br />
+<br />
+Ah, she's got a ticket to ride<br />
+She's got a ticket to ride<br />
+She's got a ticket to ride<br />
+But she don't care<br />
+<br />
+My baby don't care, my baby don't care<br />
+My baby don't care, my baby don't care<br />
+My baby don't care, my baby don't care (fade out)<br />
